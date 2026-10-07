@@ -46,7 +46,7 @@ With **Movie Match**, embark on a cinematic journey to explore films that resona
 
 ---
 
-***Enjoy your cinematic journey with Movie Match!*** 
+
 
 
 
